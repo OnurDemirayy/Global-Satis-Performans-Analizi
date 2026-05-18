@@ -1,0 +1,1 @@
+# K-resel-Sat-Performans-ve-Karl-l-k-Analizi
